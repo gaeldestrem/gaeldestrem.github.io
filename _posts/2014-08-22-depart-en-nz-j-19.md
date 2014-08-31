@@ -29,15 +29,15 @@ J'ai la conviction que ce voyage peut m'apporter énormément de choses. Je pens
 Bref je pourrais disserter longtemps, mais si je devais résumer: développement personnel, envie de profiter de la vie, améliorer mon anglais, découvrir de nouvelles choses, faire des rencontres sont les principales choses qui me viennent en tête !
 
 ### T'as quoi au programme?
-Alors j'arrive à Auckland le 12 septembre. Au début je m'étais dis que je commencerais par l'ile du nord, mais plus je me renseigne, plus j'ai envie de commencer par l'ile du sud. Alors comme mes deux jours d'avion ne me suffisent pas, j'ai repris un vol pour Christchurch ! 
+Alors j'arrive à Auckland le 12 septembre. A long terme, mon objectif c'est de visiter un peu toute la Nouvelle Zélande en faisant le tour des deux iles. Au début je m'étais dis que je commencerais par l'ile du nord, mais plus je me renseigne, plus j'ai envie de commencer par l'ile du sud. Alors comme mes deux jours d'avion ne me suffisent pas, j'ai repris un vol pour Christchurch ! 
 
 ![Carte de la Nouvelle-Zélande](/images/new_zealand_map.jpg)
 
-A long terme, mon objectif c'est de visiter un peu toute la Nouvelle Zélande en faisant le tour des deux iles. A court terme, j'ai encore rien de prévu pour la première semaine, je vais essayer de me trouver un hote Helpx dans le coin (échange de 3-4h de travail contre gite et couvert) et si ma recherche est infructueuse, je me prendrais une semaine en Backpacker histoire de faire la paperasse, peut être m'acheter une maison roulante !
+ A court terme, j'ai encore rien de prévu pour la première semaine, je vais essayer de me trouver un hote Helpx dans le coin (échange de 3-4h de travail contre gite et couvert) et si ma recherche est infructueuse, je me prendrais une semaine en Backpacker histoire de faire la paperasse, peut être m'acheter une maison roulante !
 
 Je pense remonter par la suite vers Kaikoura, je sais pas pourquoi, ce villlage a l'air cool ! Ca a l'air grand sur la carte, mais en réalité, c'est un village de 3000 habitants qu'est surtout connue pour sa faune maritime (dauphins, baleines, phoques) et son paysage. J'aimerais bien me trouver un Helpx en Backpacker par ici et y rester un peu histoire d'améliorer mon anglais :)
 
 ### Le bonus
-J'ai un stop à Sidney et à Bangkok au retour compris dans le billet d'avion ! L'idée de me faire un petit trip d'un mois en Australie et de deux-trois mois en Asie du sud-est me trotte dans la tête. La seule contrainte que j'ai, c'est qu'il faut que la durée totale de mon voyage soit inférieure à un an :) Bref, je sais pas combien de temps encore j'y resterais, ça dépendra de mon budget et de mes envies. 
+J'ai un stop à Sidney et à Bangkok au retour compris dans le billet d'avion ! L'idée de me faire un petit trip d'un mois en Australie et de deux-trois mois en Asie du sud-est me trotte dans la tête. La seule contrainte que j'ai, c'est qu'il faut que la durée totale de mon voyage soit inférieure à un an :) Bref, je sais pas combien de temps encore j'y resterais, ça dépendra de mon budget et de mes envies. Wait & see comme dirait l'ami !
 
 "If your dreams don't scare you, they are not big enough"
