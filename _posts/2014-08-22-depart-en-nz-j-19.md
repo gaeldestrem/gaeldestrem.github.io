@@ -22,7 +22,7 @@ Non, enfin j'espère pas, mais je pars seul, oui ! Je suis persuadé que sortir 
 Plus la date approche, plus j'appréhende en mode "T'es sur de ce que tu fais là ?!!" et la crainte de me retrouver un peu seul et perdu à l'autre bout du monde avec mon anglais tout pourri mais ça fait parti du challenge :)
 
 ### Pourquoi ce voyage? Pourquoi la NZ?
-C'est un rêve qui trainait au fond de ma tête et j'avais pas envie de passer à côté en me retrouvant renfermer trop vite. Alors, en début d'année, j'ai décidé de prendre mon destin en main, de refuser une proposition d'embauche, de mettre des sous de côté et de prendre mon billet et mon visa. 
+C'est un rêve qui trainait au fond de ma tête et j'avais pas envie de passer à côté. Alors, en début d'année, j'ai décidé de prendre mon destin en main, de refuser une proposition d'embauche, de mettre des sous de côté et de prendre mon billet et mon visa. 
 
 J'ai la conviction que ce voyage peut m'apporter énormément de choses. Je pense que ce voyage peut m'aider à encore mieux me connaitre et m'aider à prendre encore un peu plus confiance en moi. 
 
