@@ -51,6 +51,6 @@ A bientôt,
 
 Gaël
 
-PS: Bien que j'aimerais écrire l'intégralité de ce blog en langage SMS pour respecter la coutume de ce genre de blog, j'ai peur que ma famille me renie à mon retour. Alors désolé pour vous, je me contenterais d'écrire en français mais je vous ferait le privilège de laisser quelques fautes quand même (faut pas déconner non plus).
+PS: Bien que j'aimerais écrire l'intégralité de ce blog en langage SMS pour respecter la coutume de ce genre de blog, j'ai peur que ma famille me renie à mon retour. Alors désolé pour vous, je me contenterais d'écrire en français mais je vous ferait le privilège de laisser quelques fautes quand même (faut pas déconner non plus).  
 PS²: Petite dédicace à la communauté [PVTistes NZ](http://pvtistes.net/forum/f71.html) ! Merci aux gens qui le font vivre :)
 
