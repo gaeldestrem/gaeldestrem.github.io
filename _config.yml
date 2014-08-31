@@ -38,7 +38,7 @@ bing_verify:
 # For external links add external: true
 links:
   - title: PVTistes
-    url: http://pvtistes.net/
+    url: http://pvtistes.net/forum/f71.html
     external: true
 #   - title: External Link
 #     url: http://mademistakes.com
