@@ -1,5 +1,5 @@
-title:            Gaël au pays des Kiwis
-description:      Blog retraçant mes aventures au pays des Kiwis.
+title:            Mon aventure à l'autre bout du monde
+description:      Blog retraçant mes aventures en Nouvlle-Zélande, en Australie et en Asie du sud-est.
 disqus_shortname: 
 reading_time:     false
 words_per_minute: 200
@@ -10,7 +10,7 @@ url:
 owner:
   name:           Gaël Destrem
   avatar:         maphoto.png
-  bio:            "Gaël, 23 ans, je suis originaire d’un petit village à côté d’Annecy en Haute-Savoie. Je viens de finir mes études et j'ai décidé de réaliser un de mes rêves en partant seul en Nouvelle Zélande"
+  bio:            "Gaël, 23 ans, je suis originaire d’un petit village à côté d’Annecy en Haute-Savoie. Je viens de finir mes études et j'ai décidé de réaliser un de mes rêves en partant seul en Nouvlle-Zélande (et probablement en Australie & Asie du sud-est par la suite)"
   email:          gael.destrem@gmail.com
   # Social networking links used in footer. Update and remove as you like.
   twitter: gaeldestrem       
@@ -36,9 +36,10 @@ bing_verify:
 
 # Links to include in top navigation
 # For external links add external: true
-# links:
-#   - title: Theme Setup
-#     url: /theme-setup
+links:
+  - title: PVTistes
+    url: http://pvtistes.net/
+    external: true
 #   - title: External Link
 #     url: http://mademistakes.com
 #     external: true
