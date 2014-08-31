@@ -4,7 +4,7 @@ title: Départ en NZ, J-19
 tags: [NZ]
 image:
   feature: abstract-1.jpg
-comments: true
+comments: false
 share: true
 ---
 
