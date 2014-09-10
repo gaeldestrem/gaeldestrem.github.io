@@ -34,7 +34,7 @@ Alors, j'avais deux objectifs, que tout tienne dans mon sac principal histoire d
 ## Partie fringues:
 
 ### Sac vert n°1 et n°2: Vêtements
-* <del>Une quinzaine de caleçons et de paires de chaussettes</del> 10 caleçons et 7 paires de chaussettes (j'mise sur les journées en tongs)
+* <del>Une quinzaine de caleçons et de paires de chaussettes</del> Une dizaine de caleçons et de paires de chaussettes 
 * Un maillot de bain
 * <del>7</del> 5 Tshirts
 * <del>3</del> 2 chemises
