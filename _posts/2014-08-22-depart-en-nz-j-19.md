@@ -33,7 +33,7 @@ Alors au début, comme j'arrive à Auckland, je m'étais dis que je commencerais
 
 ![Carte de la Nouvelle-Zélande](/images/new_zealand_map.jpg)  
 
-En réalité, mes raisons sont un peu plus fondées :p Plus je me renseigne sur la Nouvelle Zélande, plus c'est l'ile du sud qui m'attire ! J'pense aussi m'acheter une mini-maison roulante assez vite et il y a certains avantages à l'acheter à Christchurch (coute en théorie moins cher, j'aurais en principe à payer qu'une fois le ferry entre les deux iles et la revente à Auckland est en théorie plus facile). 
+En réalité, mes raisons sont un peu plus fondées. Plus je me renseigne sur la Nouvelle Zélande, plus c'est l'ile du sud qui m'attire ! J'pense aussi m'acheter une mini-maison roulante assez vite et il y a certains avantages à l'acheter à Christchurch (coute en théorie moins cher, j'aurais en principe à payer qu'une fois le ferry entre les deux iles et la revente à Auckland est en théorie plus facile). 
 
  A court terme, j'ai encore rien de prévu pour la première semaine, je vais essayer de me trouver une famille Helpx dans le coin (échange de 3-4h de travail contre gite et couvert) histoire d'arriver tranquillement et de me remettre à parler anglais ! Je me prendrais surement une semaine en Backpacker à Christchurch après histoire de faire la paperasse, d'acheter ma mini-maison roulante et de commencer à rencontrer des voyageurs quand j'arriverais à tenir une discussion en anglais de plus de 30s :D 
 
