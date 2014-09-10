@@ -25,40 +25,34 @@ J'ai voulu ce soir recenser les affaires que j'enmennerais et faire un crash-tes
 <a href="/images/photos/sacs-full.JPG">
 	<img src="/images/photos/sacs-full.JPG" alt="Sacs remplis">
 </a>
-</figure>
+</figure> 
 
-Alors, je me suis mis en configuration avion (tout le matos electronique + papiers importants dans le petit sac avec moi en cabine). Je suis plutôt content car ce que je voulais enmenner rentre assez facilement (j'ai pas essayé de tout mettre uniquement dans le grand sac, mais ça doit pouvoir passer).
-
-Sur la balance, 10KG~~ pour le gros sac, et 5KG~~ pour le petit sac.
+Alors, j'avais deux objectifs, que tout tienne dans mon sac principal histoire de pouvoir partir avec mon sac de 15L en journée/rando en laissant le gros à l'auberge ! Le deuxième, c'est que malgré tout ce que j'enmenne, ça soit à peu près portable sur des durées de 45min-1h si j'dois marcher un peu avec ! 
 
 # Ma liste d'affaires: 
 
 ## Partie fringues:
 
 ### Sac vert n°1 et n°2: Vêtements
-* Une quinzaine de calecons et de paires de chaussettes
+* <del>Une quinzaine de caleçons et de paires de chaussettes</del> 10 caleçons et 7 paires de chaussettes (j'mise sur les journées en tongs)
 * Un maillot de bain
-* 6-7 Tshirts
-* 2 chemises
+* <del>7</del> 5 Tshirts
+* <del>3</del> 2 chemises
 * Un short de ville
 * Un short de bain
+* <del>2 jeans</del> 1 jeans
 * Un pantalon de randonnée
 * Veste soft-shell (tient super chaud pour pas beaucoup de place et de poids)
-
-### Sur moi:
-* Jeans
-* Tshirt
-* Sweat
-* Chaussures de ville
-* Sous vêtements
+* Un sweat
 
 ### Autre:
+* Chaussures de ville
 * Tongs
 * Chaussures de randonnée basse
 * Kway
 * Serviette micro-fibres
 * Trousse de toilette
-* Trousse de secours
+* mini-trousse de secours
 
 ## Partie bordel electronique:
 
@@ -79,14 +73,30 @@ Sur la balance, 10KG~~ pour le gros sac, et 5KG~~ pour le petit sac.
 
 ## Autre:
 * Sac vert n°4 et 5 vides (pour le linge)
-* Bloc papier + stylos
+* Pochette ventrale pour quand j'dois prendre mon passeport !
+* mini-bloc papier + stylo
 * Couteau suisse
 * Diabolo 
 * Lunettes de soleil
+* Jeu de cartes
 * Passeport + permis international + billets d'avion + papiers administratifs
-* Clés avec décapsuleur à bierre
+* Clés avec décapsuleur à bierre (c'est important!)
 * Portefeuil (CB, permis, carte d'identité, sous)
 
 
 
-Bref, c'est un beau bordel qui va m'accompagner une petite année :D
+
+Après une lutte de 30min, j'ai réussis à tout faire rentrer, mais le gros sac est vraiment plein à craqué. Deuxième punition, aie, 18KG, j'aurais pas cru. Même si j'imagine que je m'améliorerais en rangement de mon sac, j'ai pas envie de lutter à chaque fois et j'prefere me laisser un peu de marge si j'achete des trucs sur place !
+
+Après grande reflexion, j'ai déterminé qu'il fallait que j'enleve des choses ! Qu'est ce que je peux enlever ? Qu'est ce qui pese lourd ? Qu'est ce qui prend de la place? 
+
+2KG    PC => Hors de question  
+3KG   Electronique => Hors de question^2  
+3KG    Sac à vide => J'peux pas y faire grand chose  
+1KG5   Trousse de toilette + Soins + Serviette => Pareil  
+8KG~~  Vêtements + Chaussures de rando + Divers => Hmm... 
+
+
+Bon bah, on va enlever des fringues (voir les trucs barrés dans la liste au dessus) :D 30min plus tard, deuxième tentative, j'ai eu aucun soucis à tout ranger dedans cette fois. En configuration avion (tout le matos electronique + papiers importants dans le petit sac avec moi en cabine), ça devient même clairement portable ! Sur la balance, 11KG~~ pour le gros sac, et 5KG~~ pour le petit sac à l'avant qui se clipse sur les bretelles du gros ! Je pense que j'adopterais cette stratégie quand j'aurais besoin de trimballer toutes mes affaires.
+
+Bref, c'est un beau bordel qui va m'accompagner une petite année :D J'vais voir si j'arrive à me trimballer ça au quotidien mais ça m'a l'air pas mal ! 

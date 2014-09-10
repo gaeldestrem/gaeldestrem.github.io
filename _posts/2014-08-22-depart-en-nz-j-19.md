@@ -9,7 +9,7 @@ share: true
 ---
 
 
-Comme j'avais un grand regret dans ma vie, c'était de ne pas avoir fait de skyblog durant ma jeunesse, je me suis dit qu'il fallait que je fasse quelque chose avant qu'il ne soit trop tard. Je vais donc reprendre le principe de ce genre de blog en vous racontant ma vie, mais pour que ça soit un peu plus intéressant, je me suis dit que ça serait cool si je partais un an à l'étranger, j'aurais des trucs à vous raconter au moins ! Bref, du coup dans ce blog, je vais vous raconter mes péripéties aux pays des Kiwis, des Kangourous et des Elephants ! 
+Comme j'avais un grand regret dans ma vie, c'était de ne pas avoir fait de skyblog durant ma jeunesse, je me suis dit qu'il fallait que je fasse quelque chose avant qu'il ne soit trop tard. Je vais rattraper ce crime en vous racontant à mon tour ma vie. Pour que ça soit un peu plus intéressant, je me suis dit que ça serait cool si je partais un an à l'étranger, j'aurais des trucs à vous raconter au moins ! Bref, du coup je vais vous raconter mes péripéties aux pays des Kiwis, des Kangourous et des Elephants ! 
 
 ### Mais t'es qui?
 Moi, qui je suis-moi ? Gaël ou Gayel selon mon neveu, 23ans, je suis originaire d'un petit village à côté d'Annecy en Haute-Savoie. Je viens de finir un master en alternance en informatique/gestion (MIAGE) sur Grenoble et j'ai décidé de partir à l'autre bout du monde seul car il parait que c'est cool.
@@ -27,7 +27,7 @@ J'ai la conviction que ce voyage peut m'apporter énormément de choses. Je pens
 Bref je pourrais disserter longtemps, mais si je devais résumer: développement personnel, envie de profiter de la vie, améliorer mon anglais, découvrir de nouvelles choses, faire des rencontres sont les principales choses qui me viennent en tête !
 
 ### T'as quoi au programme?
-J'arrive à Auckland le 12 septembre. A long terme, mon objectif c'est de visiter un peu toute la Nouvelle Zélande en faisant le tour des deux iles pendant 7-8 mois, puis de faire un petit trip d'un mois en Australie et enfin de finir mon aventure (et mes économies) en Asie du sud-est (Thailande, Laos, Cambodge et peut être Vietnam). 
+J'arrive à Auckland le 12 septembre. A long terme, mon objectif c'est de visiter un peu toute la Nouvelle Zélande en faisant le tour des deux iles pendant 7-8 mois, puis de faire un petit trip d'un mois en Australie et enfin de finir mon aventure (et mes économies) en Asie du sud-est (Thailande, Laos, Cambodge et peut être Vietnam/Myanmar). 
 
 Alors au début, comme j'arrive à Auckland, je m'étais dis que je commencerais logiquement par l'ile du nord. Mais comme j'trouvais que faire un jour et demi d'avion sans débloquer l'achievement des deux jours d'avion et de glandouille en aéroport, ça faisait petit joueur, j'ai repris un vol pour Christchurch histoire de.
 
