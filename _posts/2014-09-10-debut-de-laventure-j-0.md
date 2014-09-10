@@ -14,7 +14,7 @@ Et voilà :D Le grand jour est arrivé, je serais dans l'avion dans quelques heu
 
 Sinon, j'ai officiellement fini et validé mon master la semaine dernière ! J'ai le sentiment d'avoir attendu une éternité ce jour mais que ces derniers jours sont passés bien trop vite, l'impression d'avoir passé mon temps à dire aurevoir aux gens sans trop réaliser ce qui m'attendait ! 
 
-Petite dédicace à beaucoup de monde, mes parents qui m'accompagnent à l'aéroport ce soir, à Fap' qui vient me faire un dernier hug, high five et selfie pour la route, à ma famille, à la Grenoble's familly pour ces 3 ans de ouf malade, à ma catin et sa bouteille de champomy périmée depuis 2 ans et à tous les autres ! Merci à vous tous, j'vous aime, vous allez me manquer !
+Petite dédicace à beaucoup de monde, mes parents qui m'accompagnent à l'aéroport ce soir, à Fap' qui vient me faire un dernier hug, high five et selfie pour la route, à ma famille, à la Grenoble's familly pour ces 3 ans de ouf malade, à ma catin et sa bouteille de champomy périmée depuis 2 ans et à tous les autres ! Merci à vous tous, j'vous aime, vous allez me manquer en éspérant garder contact avec chacun d'entre vous !
 
 
 <figure>
