@@ -22,7 +22,7 @@ Petite dédicace à beaucoup de monde, mes parents qui m'accompagnent à l'aéro
 	<img src="/images/photos/avant-daller-dormir-chez-vous.jpg" alt="Avant d'aller dormir chez vous">
 </a>  
 </figure>
-Ma soeur et mon beau-frère m'ont offert ce bouquin, ça tombe bien, il était sur ma liste des livres à acheter et à lire. Bref, j'ai hâte de le lire, je me le garde pour l'avion. La devise de l'auteur, "*Quand rien n'est prévu, tout est possible*", ça correspond plutôt bien à mon état d'ésprit pour ce voyage :D
+Ma soeur et mon beau-frère m'ont offert ce bouquin, ça tombe bien, il était sur ma liste des livres à acheter et à lire. J'aurais pu difficilement trouver un meilleur moment pour le lire, je me le garde pour l'avion. La devise de l'auteur, "*Quand rien n'est prévu, tout est possible*", ça correspond plutôt bien à mon état d'ésprit pour ce voyage :D
 
 Voilà et sinon je me tate de plus en plus à ne pas prendre de van ! Quitte à provoquer le déstin, autant y'aller jusqu'au bout en faisant du stop ! J'ai pour le moment pas prévu grand chose, 2 jours en auberge de jeunesse et une semaine en Helpx !
 
