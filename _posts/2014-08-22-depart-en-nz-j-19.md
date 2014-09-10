@@ -22,7 +22,7 @@ Plus la date approche, plus j'appréhende en mode "T'es sur de ce que tu fais l�
 ### Pourquoi ce voyage? 
 C'est un rêve qui trainait au fond de ma tête et j'avais pas envie de passer à côté. Alors, en début d'année, j'ai décidé de prendre mon destin en main, de refuser une proposition d'embauche, de mettre des sous de côté et de prendre mon billet et mon visa en criant YOLOOOO§ 
 
-J'ai la conviction que ce voyage peut m'apporter énormément de choses. Je pense que ce voyage peut m'aider à encore mieux me connaitre et m'aider à prendre encore un peu plus confiance en moi. 
+J'ai la conviction que ce voyage peut m'apporter énormément de choses notamment m'aider à encore mieux me connaitre et m'aider à prendre encore un peu plus confiance en moi. 
 
 Bref je pourrais disserter longtemps, mais si je devais résumer: développement personnel, envie de profiter de la vie, améliorer mon anglais, découvrir de nouvelles choses, faire des rencontres sont les principales choses qui me viennent en tête !
 
