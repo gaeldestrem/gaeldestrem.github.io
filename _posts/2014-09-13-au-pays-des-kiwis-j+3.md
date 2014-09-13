@@ -45,8 +45,8 @@ J'me retrouve à la quête de mon objectif final, acheter une carte SIM! Je me r
 En faisant tout ça, je me suis baladé, même plus de 3 ans après le gros tremblement de terre, il reste beaucoup de trucs désaféctés ou en travaux
 
 <figure class="half">
-<a href="/images/photos/2014-09-13/christchurch1.jpg">
-	<img src="/images/photos/2014-09-13/christchurch1.jpg" alt="christchurch1">
+<a href="/images/photos/2014-09-13/christchurch.jpg">
+	<img src="/images/photos/2014-09-13/christchurch.jpg" alt="christchurch1">
 </a>  
 <a href="/images/photos/2014-09-13/christchurch2.jpg">
 	<img src="/images/photos/2014-09-13/christchurch2.jpg" alt="christchurch2">
