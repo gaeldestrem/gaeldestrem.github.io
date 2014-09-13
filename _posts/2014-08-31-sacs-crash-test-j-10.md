@@ -13,17 +13,17 @@ Hop, plus que 10 jours :)
 J'ai voulu ce soir recenser les affaires que j'enmennerais et faire un crash-test en testant si toutes les affaires rentraient dans mes sacs ! Je pars avec un sac 70L + 15L de la marque Berghaus. J'ai aussi fait l'acquisition de sacs de rangement (5 sacs vert de plusieurs taille pour 10€ sur Groupon, j'dois avouer que c'est plutôt pratique même si ils sont tous vert :p ).
 
 <figure class="half">
-<a href="/images/photos/sacs-vides.JPG">
-	<img src="/images/photos/sacs-vides.JPG" alt="Sacs vides">
+<a href="/images/photos/2014-08-31/sacs-vides.JPG">
+	<img src="/images/photos/2014-08-31/sacs-vides.JPG" alt="Sacs vides">
 </a>
-<a href="/images/photos/matos-electronique.JPG">
-	<img src="/images/photos/matos-electronique.JPG" alt="Matos electronique">
+<a href="/images/photos/2014-08-31/matos-electronique.JPG">
+	<img src="/images/photos/2014-08-31/matos-electronique.JPG" alt="Matos electronique">
 </a>
-<a href="/images/photos/fringues.JPG">
-	<img src="/images/photos/fringues.JPG" alt="Fringues">
+<a href="/images/photos/2014-08-31/fringues.JPG">
+	<img src="/images/photos/2014-08-31/fringues.JPG" alt="Fringues">
 </a>
-<a href="/images/photos/sacs-full.JPG">
-	<img src="/images/photos/sacs-full.JPG" alt="Sacs remplis">
+<a href="/images/photos/2014-08-31/sacs-full.JPG">
+	<img src="/images/photos/2014-08-31/sacs-full.JPG" alt="Sacs remplis">
 </a>
 </figure> 
 

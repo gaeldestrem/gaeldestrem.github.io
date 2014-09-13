@@ -18,8 +18,8 @@ Petite dédicace à beaucoup de monde, mes parents qui m'accompagnent à l'aéro
 
 
 <figure>
-<a href="/images/photos/avant-daller-dormir-chez-vous.jpg">
-	<img src="/images/photos/avant-daller-dormir-chez-vous.jpg" alt="Avant d'aller dormir chez vous">
+<a href="/images/photos/2014-09-10/avant-daller-dormir-chez-vous.jpg">
+	<img src="/images/photos/2014-09-10/avant-daller-dormir-chez-vous.jpg" alt="Avant d'aller dormir chez vous">
 </a>  
 </figure>
 Ma soeur et mon beau-frère m'ont offert ce bouquin, ça tombe bien, il était sur ma liste des livres à acheter et à lire. J'aurais pu difficilement trouver un meilleur moment pour le lire, je me le garde pour l'avion. La devise de l'auteur, "*Quand rien n'est prévu, tout est possible*", ça correspond plutôt bien à mon état d'ésprit pour ce voyage :D
@@ -28,7 +28,7 @@ Voilà et sinon je me tate de plus en plus à ne pas prendre de van ! Quitte à 
 
 
 
-PS: Passez vos adresses postale sur fb ou par mail si vous voulez recevoir des cartes !   
+PS: Passez vos adresses postales sur fb ou par mail si vous voulez recevoir des cartes !   
 PS²: Pour ceux qui veulent se faire des visios, aldok74 sur skype !  
 
   
