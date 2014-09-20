@@ -24,4 +24,4 @@ Sinon, dans toute la ville, y'a des voitures de beauf (et des beaufs) partout ! 
 
 J'pensais rester plusieurs semaines, mais j'vais ptete pas rester ici aussi longtemps car y'a pas tant de choses à faire !  Je pense rester jusqu'à vendredi prochain avant de m'en aller vers une autre destination. Bref, wait & see ! 
 
-J'posterais des photos quand j'aurai
+J'posterais des photos quand j'aurais une connection un peu plus potable !
