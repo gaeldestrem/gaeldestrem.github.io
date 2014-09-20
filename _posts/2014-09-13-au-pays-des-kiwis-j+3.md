@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Au pays des kiwis, J+3
-tags: [Ile du sud]
+tags: [NZ, Ile du sud]
 image:
   feature: abstract-1.jpg
 comments: false

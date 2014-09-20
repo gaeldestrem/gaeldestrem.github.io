@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Helpx, chez Paru ! J+5
-tags: [Ile du sud]
+tags: [NZ, Ile du sud]
 image:
   feature: abstract-1.jpg
 comments: false

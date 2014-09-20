@@ -1,7 +1,7 @@
 ---
 layout: post
 title: La vie à diamond harbour ! J+7
-tags: [Ile du sud]
+tags: [NZ, Ile du sud]
 image:
   feature: abstract-1.jpg
 comments: false
@@ -85,4 +85,4 @@ Aujourd'hui, elle avait plus grand chose à me faire faire, alors malgré le tem
 
 Sinon, la cohabitation avec Paru se passe globalement bien ! Elle me fait des "Healthy repas" tous les jours, j'ai découvert que la citrouille c'est vachement bon. J'pense pas que j'boufferais aussi bien avant un petit moment. Le matin, elle est pleine d'energie et court partout et le soir, elle a tendance à se transformer en grosse loque devant la TV.  C'est un peu la même de mon côté, j'ai du mal le soir à me concentrer pour tenir une discussion en anglais. Sinon, j'avais entendu que les Kiwis aimaient pas le chauffage et l'isolation, je confirme. Il a beau faire 10° dehors, toutes les fenêtres/portes sont ouvertes ! Faut pas être frilleux ! Ca s'explique par le prix de l'éléctricité ici (oui, les centrales nucléaires, ça a du bon :p)
 
-Je me plais globalement bien ici même si au bout de 4j, ça commence à devenir un peu routinier ! Ca tombe bien, demain, direction Kaikoura pour faire un Helpx en auberge de jeunesse ! 
+Je me plais globalement bien ici même si au bout de 4j, ça commence à devenir un peu routinier ! Ca tombe bien, demain, direction Kaikoura pour faire un Helpx en auberge de jeunesse ! Ca sera un peu plus dynamique =D
