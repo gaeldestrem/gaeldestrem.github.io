@@ -16,12 +16,50 @@ Ca fait donc deux matins que j'bosse pour le gite ! J'ai eu à passer l'aspirate
 
 Hier aprem', je suis allé me ballader dans Kaikoura, la ville est toute petite et y'a pas de grand chose à faire sans raquer :D J'ai voulu aller me ballader le tour de la péninsule, mais un chien m'a suivi pendant bien 2km. Je suis allé le ramener en centre ville à la police mais ça m'a un peu niqué ma ballade, du coup, j'suis allé faire quelque chose de constructif en allant faire quelques courses. 
 
+<figure class="half">
+<a href="/images/photos/2014-09-20/kaikoura1.JPG">
+	<img src="/images/photos/2014-09-20/kaikoura1.JPG" alt="kaikoura1">
+</a> 
+<a href="/images/photos/2014-09-20/kaikoura3.JPG">
+	<img src="/images/photos/2014-09-20/kaikoura3.JPG" alt="ma hute">
+</a> 
+<a href="/images/photos/2014-09-20/lavuebalcon.JPG">
+	<img src="/images/photos/2014-09-20/lavuebalcon.JPG" alt="lavuebalcon">
+</a> 
+<a href="/images/photos/2014-09-20/lesona.JPG">
+	<img src="/images/photos/2014-09-20/lesona.JPG" alt="lavuebalcon">
+</a> 
+<a href="/images/photos/2014-09-20/machambre.JPG">
+	<img src="/images/photos/2014-09-20/machambre.JPG" alt="machambre">
+</a> 
+<a href="/images/photos/2014-09-20/unedescuisine.JPG">
+	<img src="/images/photos/2014-09-20/unedescuisine.JPG" alt="unedescuisine">
+</a> 
+<a href="/images/photos/2014-09-20/voiture5.JPG">
+	<img src="/images/photos/2014-09-20/voiture5.JPG" alt="voiture5	">
+</a> 
+</figure>
+
 En faisant le tour de la ville, je suis tombé sur les deux anglaises de mon backpacker qui chantaient dans la rue pour gagner des sous (busking in english !) à des endroits différents. Ca marche plutôt bien pour elles, les Kiwis/Touristes ont l'air assez généreux, en 2-3H elles se sont fait chacune 60-80$. C'est plutôt rentable mais faut savoir chanter (elles ont un vraiment bon niveau) et jouer de la guitare/ukulele :p
 
 En revenant, j'suis allé dans le jacuzzi du backpacker avec les autres cleaners ! Un australien nous a rejoint (yeah, un anglosaxon de plus). On est resté un bon moment dedans à parler, boire des bièrres le tout à la belle étoile avant de bouger dans un bar !
 
 Sinon, dans toute la ville, y'a des voitures de beauf (et des beaufs) partout ! Y'a un rassemblement de vieilles voitures / tunning / motards. Y'a un champ à quelques kms de la ville apparammment où ils y'a des courses de dragster & co et tous les backpackers/hotêls sont reservés pour eux. Du coup, le backpacker est envahi de beaufs et de motards avec des blousons d'harley davidson ! C'est assez marrant mais j'ai hâte d'etre dimanche histoire de retrouver un endroit un peu plus "backpacker"
 
+<figure class="half">
+<a href="/images/photos/2014-09-20/voiture1.JPG">
+	<img src="/images/photos/2014-09-20/voiture1.JPG" alt="voiture1">
+</a> 
+<a href="/images/photos/2014-09-20/voiture2.JPG">
+	<img src="/images/photos/2014-09-20/voiture2.JPG" alt="voiture2">
+</a> 
+<a href="/images/photos/2014-09-20/voiture3.JPG">
+	<img src="/images/photos/2014-09-20/voiture3.JPG" alt="voiture3">
+</a> 
+<a href="/images/photos/2014-09-20/voiture4.JPG">
+	<img src="/images/photos/2014-09-20/voiture4.JPG" alt="voiture4">
+</a> 
+</figure>
 J'pensais rester plusieurs semaines, mais j'vais ptete pas rester ici aussi longtemps car y'a pas tant de choses à faire !  Je pense rester jusqu'à vendredi prochain avant de m'en aller vers une autre destination. Bref, wait & see ! 
 
 J'posterais des photos quand j'aurais une connection un peu plus potable !
