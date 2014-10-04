@@ -1,6 +1,6 @@
 ---
 layout: post
-title: En route Maurice ! J+22
+title: En route Maurice ! J+24
 tags: [NZ, Ile du sud]
 image:
   feature: abstract-1.jpg
