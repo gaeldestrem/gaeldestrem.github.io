@@ -139,9 +139,7 @@ J'ai réaménagé mon sac de 70L (autre avantage d'avoir la voiture), je suis ar
 * 400gr de Chocolat (y'a des plaisirs simples dans la vie)
 * Sachets de thé
 
-Sur ce, j'vais tenter de survivre à mon trek :D
-
-Selfie bonus !
+Sur ce, j'vais tenter de survivre à mon trek et au cas où je survis pas, je vous fait cadeau d'un selfie dans les règles de l'art :p
 
 <a href="/images/photos/2014-10-08/selfie.jpg">
 	<img src="/images/photos/2014-10-08/selfie.jpg" alt="selfie">
