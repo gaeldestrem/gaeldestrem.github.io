@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Nelson et Motueka ! J+28
+title: Direction Abel Tasman ! J+28
 tags: [NZ, Ile du sud]
 image:
   feature: abstract-1.jpg
