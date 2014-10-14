@@ -7,6 +7,7 @@ image:
 comments: false
 share: true
 ---
+
 J'en reprends où j'en étais, Nikkie et Gary (les nouveaux proprios de mon backpacker à Picton) m'ont inviter pour faire une petite soirée tranquille dimanche soir ! J'ai repris une petite cuite (deuxième en moins d'une semaine) avec eux et le couple de woofers pour festoyer leur première semaine de proprio et mon départ, c'était bien cool !
 
 Je suis donc parti lundi matin de ma famille adoptive en faisant un gros hug à tout le monde (même à ces feignasses de chats)
