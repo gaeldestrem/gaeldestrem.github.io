@@ -14,6 +14,8 @@ J'ai surtout eu l'impression que ça les arrangeait d'avoir trouvé quelqu'un po
 
 J'ai donc recherché un backpacker où passer la nuit. J'ai opté pour un backpacker "pas trop gros" avec internet gratos (oui, ce sont mes critères :D ) ! Arrivé au backpacker, je demande si ils ont besoin d'un woofer :) Au début, elle me dit que non, que l'équipe est complète ! Je me remet donc à la recherche d'un woofing. La réceptionniste revient me voir une heure plus tard, finalement, une des woofeuse vient de m'annoncer qu'elle s'en va demain matin, tu veux la remplacer ? Hoplà, bingo, me re-voilà cleaner dans un backpacker pour normalement deux semaines pas trop loin du centre de Nelson. C'est pas le deal de fou économiquement parlant mais ça me permettra de me poser un peu, de découvrir Nelson, d'occuper les 2 semaines à venir ! Le backpacker a l'air vraiment pas mal, assez "petit" avec une ambiance assez familiale ! Ca dépendra surtout des gens que j'y rencontrerais j'imagine :)
 
+Je suis allé en fin d'aprem' au carnaval de Nelson, c'était assez cool ! Plein d'écoles de pleins de secteurs différents qui défilent ! Le thème était les 4 éléments, du coup c'était assez varié et y'avait pas mal de truc lié au seigneur des anneaux :p En rentrant, je reçois un mail de mon précédant woofing (Eva & Ian) qui m'accusent d'avoir péter la barrière avec la voiture oO Décidemment... je les ai appellé pour leur dire que j'y étais tout simplement pour rien (en plus c'est vrai) et en leur proposant même de revenir si ils voulaient, elle m'a dit au téléphone qu'elle me croit et que c'était pas la peine de revenir mais elle avait pas l'air trop convaincue... 
+
 Bref, wait & see !
 
 
