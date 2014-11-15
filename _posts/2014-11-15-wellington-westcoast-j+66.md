@@ -1,12 +1,14 @@
 ---
 layout: post
-title: Wellington et West Coast ! ! J+66
+title: Wellington et West Coast ! J+66
 tags: [NZ, Ile du sud]
 image:
   feature: abstract-1.jpg
 comments: false
 share: true
 ---
+
+/!\ J'ai enfin pu upload quelques photos en taille un peu plus décente: https://www.flickr.com/photos/gaeldestrem/sets/72157648880451439/
 
 Je vous avais laissé à Picton la veille de prendre mon Ferry ! Ca va être compliqué de tout raconter en détail car il s'est passé beaucoup de choses en dix jours ! 
 
@@ -33,32 +35,6 @@ Jeudi aprem, j'avais en tête de me poser, mais voilà que je rencontre deux all
 
 Vendredi... direction Greymouth. Pas mal de trucs à voir sur la route: Fox River, Truman Track, Punakaiki Pancakes ! Et la route encore une fois... bref, je me régale :) En arrivant, j'ai rencontré une danoise "Anne" avec qui j'suis allé me ballader et visiter un peu la ville ! Sinon, y'a pas grand chose de bien paliptant à Greymouth même.
 
-Aujourd'hui, je suis parti en direction de Franz Josef ! Un des deux glaciers à 150km au sud. Sur la route, je me suis arrêté voir encore pas mal de trucs ! Une mine, une rivière turquoise, un lac ! J'aurais au final fait 300 bornes :/
+Aujourd'hui, je suis parti en direction de Franz Josef ! Un des deux glaciers à 150km au sud. Sur la route, je me suis arrêté voir encore pas mal de trucs ! Une mine, une rivière turquoise, un lac ! J'aurais au final fait 300 bornes rien qu'aujourdhui :<
 
-
-Je pense rester quelques jours ici avant de descendre vers Mt Cook & Franz Josef puis Wanaka.
-
-Sinon concernant mes plans à moyen-long terme (l'après île du sud), c'est encore un peu flou
-
-Initialement, j'avais en tête voyager un an (7-8 mois en NZ, 1 mois en Australie et 2-3 mois en Asie du sud-est) avant de rentrer en France. Je pensais donc débuter par l'île du sud pendant 3 mois en faisant pas mal de woofing pour mon anglais. C'est plus ou moins ce que j'ai fait et ce que je suis en train de réaliser. Ensuite je pensais trouver un travail pour 4-5 mois dans mon domaine et finir par visiter l'île du nord (avec Fap') et enchainer sur la suite de mon périple.
-
-J'aimerais toujours trouver un taff à Wellington, sauf que je me dis que si je trouve un boulot dans ma branche qui me plait (y'a pas mal de choix sur Wellington), je peux probablement avoir un visa de travail aussi et rester un peu plus longtemps en NZ ce qui serait un vrai plus pour moi pour la suite j'imagine. Il faut aussi que je me débarasse de ma voiture pendant la pleine saison, donc je pense enchainer très rapidement sur l'île du nord pour revendre ma voiture à Auckland début janvier (là ou 70-80% des voyageurs arrivent).
-
-Sauf que voilà, maintenant j'ai une voiture et je sais que Wellington me plait vraiment. je me dis que si je trouve un boulot qui me plait (y'a pas mal de choix sur Wellington), je peux probablement avoir un visa de travail pour rester un peu plus et transformer ces 4-5 mois en une vraie première experience professionelle à l'étranger plutôt que passer pour un branleur qu'est parti en vacances un an :D 
-
-Mon billet d'avion retour serait pas perdu car je rentrerais en France le temps de vacances pour 3 semaines. Je retournerais en NZ pour bosser six mois - un an et je reviendrais en voyageant 
-
-La plupart des offres dans mon domaine  
-- Qu'est ce que je fais en revenant ? Travailler en France ? Je vois peu d'avantages à travailler en France par rapport à la NZ Rester travailler en NZ me sera largement plus profitable car 
-
-
-
-
-. A court terme, j'aimerais finir de visiter l'île du sud d'ici un mois et la NZ d'ici deux mois pour ensuite revendre ma voiture et me sédentariser à Wellington ! J'aimerais trouver un taff dans mon domaine et  avril ? 
-
-
-J'aurais aimé enchainer par l'île du nord mais je m'étais dis que je la gardais pour avri   Je sais pas si je ferais l'ile du nord avec d'ici deux mois et ensuite m'installer à Welly pour trouver un taff ! Il y'a aussi FapFap qui devait me rejoindre pour passer des vacs, à voir comment j'arrive à agencer tout ça ! J'ai donc réalisé que je devais accélérer un peu mon périple car parti comme ça, j'aurais fini de visiter la NZ dans deux ans :D 
-
-
-
-Mercredi, j'ai 
+Je sais pas encore trop mes plans pour la suite. La météo est pas au top ces jours (c'est la côte ouest, c'est réputé pour pleuvoir 3 jours sur 4 :p ).
