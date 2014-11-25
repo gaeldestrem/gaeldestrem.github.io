@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Wellington et West Coast ! J+66
+title: Wanaka, Southland et Catlins ! J+76
 tags: [NZ, Ile du sud]
 image:
   feature: abstract-1.jpg
@@ -8,33 +8,25 @@ comments: false
 share: true
 ---
 
-/!\ J'ai enfin pu upload quelques photos en taille un peu plus décente: https://www.flickr.com/photos/gaeldestrem/sets/72157648880451439/
+Alors alors ! J'vous avais laissé à Franz Josef il y'a 10 jours, j'ai déjà l'impression que c'était y'a 10 ans :D J'ai vu des tas de choses depuis, j'dois avoir dans les 500 photos à trier ! Bref, je les mettrais ce we quand j'me 'poserais' mais pour récapituler brièvement mon road trip
 
-Je vous avais laissé à Picton la veille de prendre mon Ferry ! Ca va être compliqué de tout raconter en détail car il s'est passé beaucoup de choses en dix jours ! 
+Après ma nuit au mini village de Franz Josef, je suis parti en direction de Wanaka. Sur la route, j'ai vu deux glaciers (Franz Josef & Fox Glacier), de belles plages le long de la côte ouest, des cascades, des bassins d'eau turquoise et de jolies lacs :D
 
-Bonne nouvelle déjà, j'ai retrouvé ma voiture en revenant et cette fois, on m'a pas volé mon essence ni ma bouffe \o/ Concernant mon séjour à Wellington, c'est assez mitigé ! Je serais resté cinq jours, j'y étais allé pour revoir quelqu'un. Sur ce point, j'ai plutôt été déçu mais par contre, concernant la ville elle-même, j'ai juste adoré la ville, vraiment !
+Arrivé à Wanaka, je suis resté là bas 4 jours le temps de me poser un peu, c'était vraiment cool, j'ai rencontré des gens toussa toussa, j'ai fait une jolie rando à un glacier (Rob Valley), j'ai fait une sorte de musée de l'illusion et des effets visuels avant de finir sur un labyrinthe où je me serais pris la tête pendant 1H30 :D J'ai vraiment beaucoup aimé Wanaka, une ville à taille humaine vraiment cool !
 
-Beaucoup de gens m'avaient dit du bien de Wellington et je ne peux qu'approuver ! La ville est connue pour être "The coolest litle capital in the world". De mon côté, de ce qui m'a plu:
+Ensuite, j'ai fui un beau matin avec un stock de cookies en direction de Queenstown ! Arrivé à Queenstown, tout était complet, y'avait du monde et des putains de touristes partout, j'me suis pas senti à ma place, j'ai fui en direction de Te anau ! Sur la route, j'ai rencontré un hitchiker maltais nommé Clinton (sacré Bill !)
 
-- Ville à taille humaine hyper dynamique 
-- La ville elle même (sans les quartiers résidentiels autour) est très petite et quasiment tout est faisable à pieds
-- La culture et l'art sont partout (Tepapa Museum, Cuba street, tags, street performers)
-- Ville cosmopolite, en se balladant, on entend toutes les langues !
-- L'ambiance de la ville
-- On peut aller se ballader et se sentir très facilement en dehors de la ville en allant sur le waterfront ou en montant sur les collines autour !
+Le lendemain, j'ai fait un bout de la Kepler Track (une fameuse rando néo zélandaise) avec ce fameux Clinton et Guillaume (un français rencontré au backpack)mais le temps était dégueulasse, j'ai pris la flotte pendant 4heures, j'suis tombé malade, bref que du bonheur :D
 
-Bref, ça a été un petit coup de coeur ! Je pense y revenir dès que j'aurais fini mon "road trip" et que je chercherais à me sédentariser quelque part :D
+Le jour d'après, j'ai fait les Milford Sounds, le temps était toujours pourri mais ils annoncaient de la pluie pour tous les jours de la semaine à venir :D Du coup, je suis parti quand même avec le français. Même avec un temps pourri, l'endroit était vraiment magique, j'suis vraiment resté sur le cul et revenu avec des étoiles dans les yeux !
 
-Je suis donc revenu ce lundi de Welligton. J'ai changé ma terre d'accueil à Picton et j'ai opté pour un Backpacker que j'avais pas encore fait, "The Juggler Rest" ! J'ai au final pas été déçu, ça tout simplement été le meilleur backpacker que j'ai fait depuis le début ! J'y suis resté une nuit de plus qu'initialement prévu car je m'y sentais vraiment bien :)
+Détail important, mais au backpacker de Te Anau, j'ai aussi revu les deux français (Johann et Sébastien) avec qui j'avais fait une rando à Wanaka. Du coup, vu qu'on avait plus ou moins les mêmes projets, on a décidé de finir le tour de l'île jusqu'à Christchurch ensemble. J'ai donc filé en direction de Dunedin en passant par les Catlins avec eux. Y'avait quelques endroit sympas dans les Catlins mais j'ai pas trouvé ça fou (ptete à cause du temps pourri encore une fois, j'ai globalement eu vraiment un temps dégeulasse sur les 10 derniers jours). 
 
-Bref ! J'ai aussi décidé d'accélérer un peu mon périple ! J'ai prévu encore de vagabonder un peu sur l'île du sud, mais parti comme ça, il va me falloir deux ans pour visiter toute la Nouvelle Zélande, je vais arrêter de me trouver un woofing dans chaque ville :p 
+Du coup on reste jusqu'à demain à Dunedin et on file en direction de Mont Cook, Lac Tekapo pour finir à Christchurch vendredi.
 
-Je suis donc parti en direction de la West coast mercredi matin en faisant quelques détours le long de la route ! J'ai dormi pour la première fois mercredi près des Nelson Lakes dans ma voiture dans un camping free ! Jeudi midi, je suis arrivé à Westport dans un backpacker assez grand mais fantôme :D Les décors et l'ambiance le long de la route étaient juste magnifiques. J'ai toujours aimé conduire mais ici, je me régale vraiment. 
+Me concernant, j'ai envie de me poser car depuis que j'ai quitté Nelson y'a 3 semaines, j'ai pas arrêté de bouger, visiter, découvrir des trucs. Je savais pas trop quoi faire après mon tour de l'île du sud alors j'ai postulé à 6-7 offres de développeur web sur Christchurch sans trop y croire.
 
-Jeudi aprem, j'avais en tête de me poser, mais voilà que je rencontre deux allemands qui me proposent d'aller à la plage avec eux. Allez, c'est parti, j'suis allé me ballader à un spot à une quinzaine de km de Westport, le coin était vraiment sympathique :)
+Pourquoi j'y crois pas ? J'ai croisé des gens qui ont passé pas mal de temps à galerer à chercher et le combo anglais pourri + working holiday visa (grande probabilité pour que la personne se barre au bout de quelques mois) fait un peu peur pour les jobs "long terme/qualifié". A ça, faut rajouter mon profil junior de mon côté. 
 
-Vendredi... direction Greymouth. Pas mal de trucs à voir sur la route: Fox River, Truman Track, Punakaiki Pancakes ! Et la route encore une fois... bref, je me régale :) En arrivant, j'ai rencontré une danoise "Anne" avec qui j'suis allé me ballader et visiter un peu la ville ! Sinon, y'a pas grand chose de bien paliptant à Greymouth même.
+Contre toute attente, j'ai eu un mail d'une chef de projet qui veut me rencontrer sur Christchurch, j'ai donc normalement mon premier entretien en anglais (et de ma vie professionelle) pour un poste en développeur web php la semaine prochaine, je sais juste pas à quoi m'attendre alors je vais y'aller et voir se qui se passe :D
 
-Aujourd'hui, je suis parti en direction de Franz Josef ! Un des deux glaciers à 150km au sud. Sur la route, je me suis arrêté voir encore pas mal de trucs ! Une mine, une rivière turquoise, un lac ! J'aurais au final fait 300 bornes rien qu'aujourdhui :<
-
-Je sais pas encore trop mes plans pour la suite. La météo est pas au top ces jours (c'est la côte ouest, c'est réputé pour pleuvoir 3 jours sur 4 :p ).
