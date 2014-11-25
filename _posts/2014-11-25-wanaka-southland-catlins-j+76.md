@@ -18,7 +18,7 @@ Ensuite, j'ai fui un beau matin avec un stock de cookies en direction de Queenst
 
 Le lendemain, j'ai fait un bout de la Kepler Track (une fameuse rando néo zélandaise) avec ce fameux Clinton et Guillaume (un français rencontré au backpack)mais le temps était dégueulasse, j'ai pris la flotte pendant 4heures, j'suis tombé malade, bref que du bonheur :D
 
-Le jour d'après, j'ai fait les Milford Sounds, le temps était toujours pourri mais ils annoncaient de la pluie pour tous les jours de la semaine à venir :D Du coup, je suis parti quand même avec le français. Même avec un temps pourri, l'endroit était vraiment magique, j'suis vraiment resté sur le cul et revenu avec des étoiles dans les yeux !
+Le jour d'après, j'ai fait les Milford Sounds, le temps était toujours pourri mais ils annoncaient de la pluie pour tous les jours de la semaine à venir :D Du coup, je suis parti quand même avec Guillaume (le français). Même avec un temps pourri, l'endroit était vraiment magique, j'suis vraiment resté sur le cul et revenu avec des étoiles dans les yeux !
 
 Détail important, mais au backpacker de Te Anau, j'ai aussi revu les deux français (Johann et Sébastien) avec qui j'avais fait une rando à Wanaka. Du coup, vu qu'on avait plus ou moins les mêmes projets, on a décidé de finir le tour de l'île jusqu'à Christchurch ensemble. J'ai donc filé en direction de Dunedin en passant par les Catlins avec eux. Y'avait quelques endroit sympas dans les Catlins mais j'ai pas trouvé ça fou (ptete à cause du temps pourri encore une fois, j'ai globalement eu vraiment un temps dégeulasse sur les 10 derniers jours). 
 
