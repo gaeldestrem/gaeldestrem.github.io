@@ -8,7 +8,6 @@ comments: false
 share: true
 ---
 
-
 Comme j'avais un grand regret dans ma vie, c'était de ne pas avoir fait de skyblog durant ma jeunesse, je me suis dit qu'il fallait que je fasse quelque chose avant qu'il ne soit trop tard. Je vais rattraper ce crime en vous racontant à mon tour ma vie. Pour que ça soit un peu plus intéressant, je me suis dit que ça serait cool si je partais un an à l'étranger !
 
 ### Mais t'es qui?
