@@ -37,8 +37,8 @@ bing_verify:
 # Links to include in top navigation
 # For external links add external: true
 links:
-  - title: Photos non triées (Flickr)
-    url: https://www.flickr.com/photos/gaeldestrem/sets/72157647696113807/
+  - title: Quelques photos (Flickr)
+    url: https://www.flickr.com/photos/gaeldestrem/sets/72157648880451439/
     external: true
   - title: PVTistes
     url: http://pvtistes.net/forum/f71.html
