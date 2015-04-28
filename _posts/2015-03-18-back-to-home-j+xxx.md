@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 
+title: HOME SWEET HOME, J+189
 tags: [Autre, SEA]
 image:
   feature: abstract-1.jpg
@@ -8,9 +8,11 @@ comments: false
 share: true
 ---
 
-Ca y'est, mon aventure touche à sa fin ! Je suis rentré perfidement en faisant la surprise à la plupart de mes proches il y'a maintenant une dizaine de jours :D Et non, je ne suis pas arrivé en Mongolie comme certaines personnes pensaient '^^ C'est assez marrant de voir les têtes de chacun :D
+Je suis rentré perfidement en faisant la surprise à la plupart de mes proches le 18 mars dernier :D C'est l'heure du bilan, j'avais écris ça pendant mon retour d'avion et avait laissé un peu le tout en suspens
 
 Un peu plus de six mois de voyage en mode backpacking (10 sept - 18 mars), l'éxpérience la plus riche de ma vie. Le temps est passé de façon étrange, j'ai accumulé tellement de souvenirs en l'espace de six mois que j'ai l'impression que ça fait plusieurs années. Ca a pas toujours été évident, y'a eu des hauts et des bas mais si j'avais à refaire le choix, je fonçerais tête baissé tellement cette expérience m'a apporté. J'ai appris tellement de choses que ça soit à propos de moi ou des autres, ma vision sur beaucoup de choses a pas mal changé. Je sais pas encore où la suite va m'amener, j'ai à la fois envie de me poser et de retourner dans ma ville de racailleux hippies écolos (Grenoble) mais à la fois envie de profiter d'avoir aucune contraintes pour tenter un VIE à Montréal ! J'ai pas mal de projets en tête, je me suis rarement senti aussi bien avec moi même et j'ai envie de profiter de la vie comme jamais :D J'voulais faire un gros big up à toutes les personnes que j'ai rencontré au cours de ce voyage et qui ont contribué à mon aventure ! 
+
+Edit: Maintenant je sais, back to Grenoble ;) 
 
 Bref, mon voyage en très condensé:
 
@@ -138,18 +140,17 @@ Les jours d'après, on nous a appris la seconde méthode de méditation, la rée
 Bref, ces 10 jours à réfléchir à ma vie m'a fait le plus grand bien et surtout, j'ai appris à être heureux par moi même. Par contre le retour à la réalité, ça fait bizarre d'être coupé de tout et d'un coup de se retrouver dans une grosse ville asiatique où ça klaxonne dans tous les sens :D Je me suis senti un peu perdu le premier jour. 
 
 Dans mes révélations (qqunes aussi que j'ai eu aussi un peu plus tôt pendant mon voyage):
-- Si mon bonheur dépend des choses externes ou matérielles, je serais jamais vraiment heureux en plus de vivre dans le futur. Ca m'a fait repensé au livre "The monk who sold his ferrari" 
+- Si mon bonheur dépend des choses externes ou matérielles, je serais jamais vraiment heureux. (On en veut toujours plus), ça m'a fait repensé au livre "The monk who sold his ferrari" 
 - Y'a pas de fumée sans feu ! 
-- J'ai appris à être heureux par moi même, faut juste que je garde une certaine discipline de vie.  
-- La plupart des gens sont rongés par l'ego et leur désir d'être le meilleur. J'étais le premier dans cette catégorie quand je jouais aux jeux vidéo à un niveau compétitif, mais être le meilleur, c'est relativement dûre et surtout, ça durera pas :p Je finissais plus blasé qu'autre chose au final :D 
-- Les gens ont aussi maintenant culturellement besoin de l'approbation des autres pour faire quoi que ce soit. J'étais aussi atteint, même si je postais pas un selfie de moi tous les jours sur fb, je me sentais souvent juger etc. Maintenant, pour résumer ça très brièvement: Je m'en bas un peu les couilles, je tiens compte de l'avis des autres mais j'vis pas pour eux :) 
+- Etre heureux, c'est juste un choix et une discipline de vie  
+- Arrêter de vivre pour les autres
 - Arrêter de vivre dans le futur ou le passé. Putain, je me suis rendu compte à quel point j'avais tendance à toujours vivre dans le futur et à faire des plans sur la comète. Do it now and see what happens. 
 - La loi de Pareto, avec 20% d'efforts, on a 80% des résultats. J'ai fait toutes mes études comme ça, j'vais continuer comme ça pour la plupart des choses de ma vie. Pareil, j'avais lu un bouquin assez intéréssant à ce sujet the 4H workweek.  
 - Self discipline is the key of success. Que ça soit pour apprendre quelque chose, se sentir mieux, améliorer quelque chose, vaut mieux passer 20min par jour que 2H tous les 3j. 
-- La vie est impermanente, alors mon but c'est de profiter de la vie autant que je peux maintenant, pas quand j'aurais 80 ans. Si ça se trouve, j'serais plus là dans 2 ans, c'est pas triste, ça fait partie de la vie et de la nature. J'ai eu ce déclic quand j'ai vu une grenouille se faire bouffer par un serpent à 3m de moi. 
-- Ecouter son instinct. J'ai toujours eu tendance à écouter mon instinct, quelques fois ça m'a amené dans le mur mais avec du recul, j'suis content que ça me soit arrivé. J'avais jamais pensé avant mon voyage faire une retraite du genre, et putain, ça a été la meilleure chose qui me soit arrivé dans ma vie je crois x) 
+- La vie est impermanente, alors mon but c'est de profiter de la vie autant que je peux maintenant, pas quand j'aurais 80 ans. Si ça se trouve, j'serais plus là dans 2 ans, c'est pas triste, ça fait partie de la vie et de la nature. J'ai eu ce déclic quand j'ai vu une grenouille se faire bouffer par un serpent à 3m de moi pendant ma retraite vipassana.
+- Ecouter son instinct. J'ai toujours eu tendance à écouter mon instinct, quelques fois ça m'a amené dans le mur mais avec du recul, j'suis content que ça me soit arrivé. J'avais jamais pensé avant mon voyage faire une retraite du genre, et putain, ça a été l'une des meilleures chose qui me soit arrivé dans ma vie je crois.
 - Etre introverti c'est pas une mauvaise chose en soit, au contraire, faut juste apprendre ses forces et arrêter de vouloir ressembler à quelqu'un d'extraverti, ça marche pas. Je m'en étais déjà pas mal rendu compte au cours de mon voyage et lire un livre à ce sujet (Quiet, the power of introverts) a fini par totalement me convaincre  
-- Prends soin de tes meilleurs amis et de ta famille, c'est eux qui seront là quand il t'arrivera un truc, c'est probablement avec eux que tu partageras les meilleurs moments de ta vie. Ils seront peut être parfois loin, mais ils sauront toujours là contrairement à tes 2000 autres potes fb. Je préfère avoir 5 amis sur qui je peux réellement compter que 2000 relations superficielles/pote fb :D Et ce qu'est cool, c'est que je les ai déjà :D  
+- Prends soin de tes meilleurs amis et de ta famille, c'est eux qui seront là quand il t'arrivera un truc, c'est probablement avec eux que tu partageras les meilleurs moments de ta vie. Ils seront peut être parfois loin, mais ils sauront toujours là contrairement à tes 2000 autres potes fb. Je préfère avoir 5 amis sur qui je peux réellement compter que 2000 relations superficielles :D  
 - Don't expect anything and magic will happen. Le contraire est malheureusement vrai, je l'ai appris à mes dépends x)  
 
 Ca m'a aussi fait repensé à ce que m'avait dit Paru lors de mon premier woofing. Elle m'avait donné un bouquin en me donnant mon enneagramme et en le lisant. Je m'étais un peu foutu de sa gueule mais je crois qu'elle m'avait bien cerné quand même '^^  
@@ -179,17 +180,16 @@ The Peacemake let go of the belief that their participation in the word is unimp
 
 Je sais pas ce qui se passe depuis quelques jours mais j'ai rarement autant aimer la vie :D
 
+Edit: MON GOOD MOOD CONTINUE, j'ai soigné mon karma :P
+
 Pour la toute fin de mon voyage, je suis retourné à Bangkok dans l'auberge ou je m'étais vraiment plu. J'avais pas trop de plans à part faire un peu de shoupping et aller au coiffeur. Le dernier soir, j'avais rien de prévu, il me restait 100 baht (3€) car je voulais pas retirer d'argent (frais bancaires) et vous savez quoi j'ai passé une des meilleures soirées de ma vie ! En allant manger Thai avec les gens de mon auberge, on a rencontré des gens que d'autres gens de mon groupe connaissaient. Bref, je me suis retrouvé dans un club Jazz à passer l'une des meilleures soirées de ma vie (la suite restera confidentielle '^^ ). 
 
 Le lendemain, j'avais mon billet retour pour Lyon mais j'avais une escale du genre 15h à Dubai. Au moment du check-in, "hmm you're going to wait for a long time, we can offer you a free night of hostel in Dubai if you want" Okay, why not x) J'arrive à l'hôtel, même si c'était marqué "basic" sur mon billet, j'ai rarement vu un truc aussi classe :p Je sais pas ce qu'on peut avoir de plus classe avec les autres classes (J'ai mon idée mais je veux pas choquer les âmes sensibles :p ). Y'avait aussi le diner/petit dej, gros buffet à volonté, j'ai rarement aussi bien bouffé de ma vie, je me suis litéralement explosé le bide :D 
 
-THEY SEE ME ROLLIN' THEY HATIN'
-
-
 ### Mes meilleures anecdotes & Highlights de l'aventure:
 - Me faire arrêter par la police pendant que je conduisais sur l'île du sud, oublier de couper la musique et avoir BAD BOYS, BAD BOYS, WHATCHA YOU GONNA DO WHEN THEY COME FOR YOU  
 - Manquer de louper son avion à Dubai, se transformer en Ushen Bolt et arriver le dernier dans l'avion en se faisant engeuler :D  
-- Se faire siphonner son réservoir et se faire piquer sa bouffe dans le coffre de sa voiture pendant Abel'Tasman
+- Se faire siphonner son réservoir et se faire piquer sa bouffe dans le coffre de sa voiture pendant ma rando de 4j
 - Me retrouver sur haie de 4m à couper sous mes pieds le 3ème jour de mon aventure  
 - Rencontrer le fils du roi des Maoris en faisant du stop, sympathiser avec, lui donner ma guitare et découvrir plein de traditions maoris !  
 - Mon dernier soir à Bangkok: Le club Jazz :D  
