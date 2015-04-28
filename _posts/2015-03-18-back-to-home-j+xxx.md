@@ -83,9 +83,6 @@ Suite à ça, je suis parti en Australie avec comme plan de faire la côte est d
 	<a href="/images/photos/2015-03-18/3-5.JPG">
 		<img src="/images/photos/2015-03-18/3-5.JPG" alt="3-5"/>
 	</a>
-	<a href="/images/photos/2015-03-18/3-6.JPG">
-		<img src="/images/photos/2015-03-18/3-6.JPG" alt="3-6"/>
-	</a>
 </figure>
 
 ### Partie 4: Thailande
