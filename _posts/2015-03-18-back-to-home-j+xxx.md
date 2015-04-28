@@ -139,7 +139,7 @@ Les jours d'après, on nous a appris la seconde méthode de méditation, la rée
 
 Bref, ces 10 jours à réfléchir à ma vie m'a fait le plus grand bien et surtout, j'ai appris à être heureux par moi même. Par contre le retour à la réalité, ça fait bizarre d'être coupé de tout et d'un coup de se retrouver dans une grosse ville asiatique où ça klaxonne dans tous les sens :D Je me suis senti un peu perdu le premier jour. 
 
-Dans mes révélations (qqunes aussi que j'ai eu aussi un peu plus tôt pendant mon voyage):  
+###Dans mes révélations (qqunes aussi que j'ai eu aussi un peu plus tôt pendant mon voyage):  
 - Si mon bonheur dépend des choses externes ou matérielles, je serais jamais vraiment heureux. (On en veut toujours plus), ça m'a fait repensé au livre "The monk who sold his ferrari"  
 - Y'a pas de fumée sans feu !  
 - Etre heureux, c'est juste un choix et une discipline de vie  
