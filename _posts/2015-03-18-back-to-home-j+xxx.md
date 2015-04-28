@@ -119,7 +119,7 @@ Suite à ça, j'avais envie de continuer à tenter des choses que j'aurais peut 
 
 La Birmanie et ma retraite vipassana, je sais pas si c'est parce que c'est le truc le plus récent, me faut encore un peu de recul mais je serais tenté de dire que c'est l'éxpérience la plus enrichissante de mon voyage et peut être de ma vie.
 
-En quoi ça consiste?
+En quoi ça consiste?  
 - 10 jours à apprendre une technique de méditation et l'enseignement de Buddha (Dhamma) (12j en comptant le jour où on arrive et ou on repart) 
 - Pas le droit de parler ou de communiquer par des signes avec les autres étudiants 
 - Aucun moyen de divertissement (livres, téléphone, etc...) 
@@ -139,16 +139,16 @@ Les jours d'après, on nous a appris la seconde méthode de méditation, la rée
 
 Bref, ces 10 jours à réfléchir à ma vie m'a fait le plus grand bien et surtout, j'ai appris à être heureux par moi même. Par contre le retour à la réalité, ça fait bizarre d'être coupé de tout et d'un coup de se retrouver dans une grosse ville asiatique où ça klaxonne dans tous les sens :D Je me suis senti un peu perdu le premier jour. 
 
-Dans mes révélations (qqunes aussi que j'ai eu aussi un peu plus tôt pendant mon voyage):
-- Si mon bonheur dépend des choses externes ou matérielles, je serais jamais vraiment heureux. (On en veut toujours plus), ça m'a fait repensé au livre "The monk who sold his ferrari" 
-- Y'a pas de fumée sans feu ! 
+Dans mes révélations (qqunes aussi que j'ai eu aussi un peu plus tôt pendant mon voyage):  
+- Si mon bonheur dépend des choses externes ou matérielles, je serais jamais vraiment heureux. (On en veut toujours plus), ça m'a fait repensé au livre "The monk who sold his ferrari"  
+- Y'a pas de fumée sans feu !  
 - Etre heureux, c'est juste un choix et une discipline de vie  
-- Arrêter de vivre pour les autres
+- Arrêter de vivre pour les autres  
 - Arrêter de vivre dans le futur ou le passé. Putain, je me suis rendu compte à quel point j'avais tendance à toujours vivre dans le futur et à faire des plans sur la comète. Do it now and see what happens. 
 - La loi de Pareto, avec 20% d'efforts, on a 80% des résultats. J'ai fait toutes mes études comme ça, j'vais continuer comme ça pour la plupart des choses de ma vie. Pareil, j'avais lu un bouquin assez intéréssant à ce sujet the 4H workweek.  
 - Self discipline is the key of success. Que ça soit pour apprendre quelque chose, se sentir mieux, améliorer quelque chose, vaut mieux passer 20min par jour que 2H tous les 3j. 
-- La vie est impermanente, alors mon but c'est de profiter de la vie autant que je peux maintenant, pas quand j'aurais 80 ans. Si ça se trouve, j'serais plus là dans 2 ans, c'est pas triste, ça fait partie de la vie et de la nature. J'ai eu ce déclic quand j'ai vu une grenouille se faire bouffer par un serpent à 3m de moi pendant ma retraite vipassana.
-- Ecouter son instinct. J'ai toujours eu tendance à écouter mon instinct, quelques fois ça m'a amené dans le mur mais avec du recul, j'suis content que ça me soit arrivé. J'avais jamais pensé avant mon voyage faire une retraite du genre, et putain, ça a été l'une des meilleures chose qui me soit arrivé dans ma vie je crois.
+- La vie est impermanente, alors mon but c'est de profiter de la vie autant que je peux maintenant, pas quand j'aurais 80 ans. Si ça se trouve, j'serais plus là dans 2 ans, c'est pas triste, ça fait partie de la vie et de la nature. J'ai eu ce déclic quand j'ai vu une grenouille se faire bouffer par un serpent à 3m de moi pendant ma retraite vipassana.  
+- Ecouter son instinct. J'ai toujours eu tendance à écouter mon instinct, quelques fois ça m'a amené dans le mur mais avec du recul, j'suis content que ça me soit arrivé. J'avais jamais pensé avant mon voyage faire une retraite du genre, et putain, ça a été l'une des meilleures chose qui me soit arrivé dans ma vie je crois.  
 - Etre introverti c'est pas une mauvaise chose en soit, au contraire, faut juste apprendre ses forces et arrêter de vouloir ressembler à quelqu'un d'extraverti, ça marche pas. Je m'en étais déjà pas mal rendu compte au cours de mon voyage et lire un livre à ce sujet (Quiet, the power of introverts) a fini par totalement me convaincre  
 - Prends soin de tes meilleurs amis et de ta famille, c'est eux qui seront là quand il t'arrivera un truc, c'est probablement avec eux que tu partageras les meilleurs moments de ta vie. Ils seront peut être parfois loin, mais ils sauront toujours là contrairement à tes 2000 autres potes fb. Je préfère avoir 5 amis sur qui je peux réellement compter que 2000 relations superficielles :D  
 - Don't expect anything and magic will happen. Le contraire est malheureusement vrai, je l'ai appris à mes dépends x)  
